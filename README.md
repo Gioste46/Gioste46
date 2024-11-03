@@ -2,4 +2,4 @@
 - 👀 I’m interested in developing and gaming
 - 🌱 I’m currently learning whatever might turns out to be useful to me in the future
 - ⚒ Im not currently working on any Majour project
-- 👨‍🎓 I have no offical degrees, im a self-taught developer with arround 4-5 years of experience
+- 👨‍🎓 I have no offical degrees, im a self-taught developer with arround 5-6 years of experience
